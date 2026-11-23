@@ -42,7 +42,9 @@ The legal basis for the chat is legitimate interest: running a small site that a
 
 ## Children
 
-This site is not aimed at children. If you are under 16, please ask a parent or guardian before writing anything here.
+Marsariitiin kun namoota waggaa 18 hin guunneef miti. Waa'ee amantii Yesuus irratti ni dubbata, sunis dhimma amantaa ti, kanaafuu namoota guddaaf barreessame. Yoo ati waggaa 18 hin guunne, maaloo odeeffannoo kee dhuunfaa as irratti hin qooddadhu, Jonathanitti hin barreessin.
+
+Ispeen keessatti, seerri jedha daa'imni waggaa 14 hin guunne odeeffannoo isaa dhuunfaa interneetii irratti qooddachuu dura hayyama abbaa, haadhaa yookiin guddistuu isaa barbaada. Seerri marsariitii kanaa ofii isaa kana caalaa jabaa dha: yoo ati waggaa 18 hin guunne, marsariitiin kun siif miti.
 
 ## Changes
 
