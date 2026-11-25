@@ -6,7 +6,7 @@ original_url: https://jonathanmccallum.com/privacy/
 
 # Iccitii
 
-Marsariin kana kan bulchaa'aa dha Jonathan McCallum, kan Getaria, Spain keessa jiraatu. Marsarii dhuunfaa xiqqaa dha: barreessaa, fi chat kan barreessicha irraa deebii kennu. Asitti akkaawuntii uumuu hin barbaachisu, hordoffiin hin jiru, beeksisni hin jiru, wanti gurguramuuf jirus hin jiru. Seera iccitii Awurooppaa (GDPR) hordofa, daawwattoota hundaaf, bakka addunyaa keessa jirtan kamiyyuu.
+Marsariin kana kan bulchaa'aa dha Jonathan McCallum, kan Biyya Baaskii keessa jiraatu. Marsarii dhuunfaa xiqqaa dha: barreessaa, fi chat kan barreessicha irraa deebii kennu. Asitti akkaawuntii uumuu hin barbaachisu, hordoffiin hin jiru, beeksisni hin jiru, wanti gurguramuuf jirus hin jiru. Seera iccitii Awurooppaa (GDPR) hordofa, daawwattoota hundaaf, bakka addunyaa keessa jirtan kamiyyuu.
 
 Yoo waa'ee fuula kanaa yookiin waa'ee odeeffannoo keessan dhuunfaa gaafachuu barbaaddan, Jonathan barreessi: <a href="#" data-contact-email data-contact-email-text>Naaf ergaa i-meelii</a>. Akkasumas [Instagram](https://www.instagram.com/jonamccallum) yookiin [Threads](https://www.threads.com/@jonamccallum) irratti ergaa itti erguu dandeessu.
 
